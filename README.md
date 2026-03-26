@@ -1,1 +1,1 @@
-# Atividade-100-exerc-cios
+# Atividade-100-exercicios
